@@ -11,12 +11,11 @@ Prefer Coffee or Tea?
 Went to Working Holiday?
 
 Good in Maths?
-Eric
+
 Desperately need a Boyfriend / Girlfriend?
-yes
 
 Want to be Hacker?
-Yeah
+
 Love Sports?
-Jason
+
 Fans of Matrix (the movie)?
